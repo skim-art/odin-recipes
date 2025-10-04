@@ -1,0 +1,1 @@
+This is a project to practice my HTML skills that I leaned over the later half of September-early October. Let's see if I remember everything!
